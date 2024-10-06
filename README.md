@@ -1,3 +1,3 @@
-### Hi there 👋
+### Attention please 👋
 
-- 🤔 I’m looking for help with HTML.
+- 🤔 Thanks for your attention.
